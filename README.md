@@ -1,1 +1,3 @@
 # konas
+
+APRIL FOOLS!!!!
